@@ -29,6 +29,7 @@ The bottler's of both Pepsi and Coke cannot manufacture bottles for other compet
 
 https://www.investopedia.com/terms/p/porter.asp#:~:text=These%20forces%20include%20the%20number,strategy%20to%20increase%20competitive%20advantage.
 
+https://docs.google.com/document/d/1aTkiL23zwl15LQ8KbXvViWF-4JWuR1A1TrV9pjDT61g/edit
 
  
  
