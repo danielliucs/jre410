@@ -26,7 +26,7 @@ participate in?
 
 Lower forces leads to higher profits. 
 
-The power of the supplier of the bottler's are low. You realy only need raw materials to produce metal cans, plastic bottles, etc. You only need basic commodities making it the bottler's and their supplier's power not very high
+The power of suppliers are high. Why should a company choose your company to manufacture their bottles when they can choose the one next door? It is not a very niche task to do and they can choose anyone making the power of your buyers very high since you have to offer satisfactory prices for the companies that want to manufacture prices. The company also determines the syrup price that you must buy to manufacture a beverage in your drink, this doesn't even account for all your labor cost
 
 The bottler's of a company most likely cannot manufacture bottles for other competing companies wtih similar products. This makes it very difficult for new entrants to the market since these manufacturing companies have already agreed to stay loyal to one company, hence the threat of a new entry is very low.
 A new entrant has no effect for the bottler since they will be bottling the same companies product anyways.
@@ -35,7 +35,8 @@ The threat of substitutes is high. Bottler manufacturing companies can be easily
 
 There is rivalry in the bottler industry that can drive prices down and this force up. This force is high since if a company is not satisifed with a bottler and their manufacturing prices they can easily just go on to the next bottler company.
 
-The power of buyers are high. Why should a company choose your company to manufacture their bottles when they can choose the one next door? It is not a very niche task to do and they can choose anyone making the power of your buyers very high since you have to offer satisfactory prices for the companies that want to manufacture prices
+//buyers are customers
+The power of buyers are high. The buyers of the product in the bottle industry would be the customers that consume the beverage. The buyers affect which company the manufacturing companies in the bottling industry buy from, kind of like a domino effect. If all of sudden nobody were to buy from the soft-drink firm that a bottler company manufactures for then the bottler company will have to ultimately find another firm to manufacture for. The buyers affect the soft-drink industry which ultimately affect the bottler industry
 
 This is not an attractive industry to enter. Anybody can do this and it's not very hard to do making the competition, power of buyers, and threat of substitues extremely high making it not a very attractive industry to enter.
  
