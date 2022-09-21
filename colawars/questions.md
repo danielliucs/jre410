@@ -51,6 +51,6 @@ This is not an attractive industry to enter. Anybody can do this and it's not ve
  
 3.  How can Coke & Pepsi sustain their profits with increasing 
 globalization, flattening demand and the growing popularity 
-of non-CDS? 
+of non-CSD? 
 
-Coke & Pepsi can sustain their profits with increasing globalization because they will have far more customers to sell to. They can give lower prices in poorer countries which will allow many citizens to buy their food since it is so much cheaper. Growing popularity on non-CDS does not have huge effect on these two companies since they own so many other companies anyways. They can use their other products and develop a new non-CDS product that will sell equally as well. In order to flatten demand, they can raise the prices a little bit more which will ultimately make buyers not want to buy their product as much
+Coke & Pepsi can sustain their profits with increasing globalization because they will have far more customers to sell to. They can give lower prices in poorer countries which will allow many citizens to buy their food since it is so much cheaper. Growing popularity on non-CSD does not have huge effect on these two companies since they own so many other companies anyways. They can use their other products and develop a new non-CSD product that will sell equally as well. In order to flatten demand, they can raise the prices a little bit more which will ultimately make buyers not want to buy their product as much
