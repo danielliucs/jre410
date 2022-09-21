@@ -54,3 +54,5 @@ globalization, flattening demand and the growing popularity
 of non-CSD? 
 
 Coke & Pepsi can sustain their profits with increasing globalization because they will have far more customers to sell to. They can give lower prices in poorer countries which will allow many citizens to buy their food since it is so much cheaper. Growing popularity on non-CSD does not have huge effect on these two companies since they own so many other companies anyways. They can use their other products and develop a new non-CSD product that will sell equally as well. In order to flatten demand, they can raise the prices a little bit more which will ultimately make buyers not want to buy their product as much
+
+LEBRON JAMES SPRITE AD!!! Celebreties => use these
