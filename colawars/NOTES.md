@@ -8,3 +8,4 @@
 6. What are the key success factors of the industry?
 7. Does the industry outlook offer good prospects for profitability?
 
+ANALYZE THE REST OF THE INDUSTRY not specific companies!!
