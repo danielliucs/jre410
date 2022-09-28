@@ -21,4 +21,8 @@ Differntiation of their products gave them a competitve advantage. They released
 3. Why did both Philips and Matsushita have difficulties 
 building the capabilities they recognized as missing?
 
-These two companies both had the problem of expanding so far internationally that they had difficulty reorganizing or communicating with the parent company. They gave way too much freedom to their foreign operations making it very hard if things were going wrong for the parent to reorganize. This on top of their spending costs made it very hard for both companies. Their company broke off into too many sub-companies.
+These two companies both had the problem of expanding so far internationally that they had difficulty reorganizing or communicating with the parent company. They gave way too much freedom to their foreign operations making it very hard if things were going wrong for the parent to reorganize. Too much cost!! R&D not market oriented!!
+
+However, Japan company had to fund the oversea companies, tried to make them local by hiring American companies for Americans. They struggled to decentralize!! SO MUCH OF THE R&D WAS IN JAPAN BUT NOT OFFSHORE!!!! 
+
+Get rid of old traditions and adaptability to be able to adapt quicker.
