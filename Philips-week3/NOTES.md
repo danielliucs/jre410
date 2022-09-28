@@ -130,3 +130,6 @@ VRIN (Valuable, Rare, In-imitable, Non-substitutable) INNER ANALYSIS!!
 
 ## Traditions
 * Both should have tried to forget their old habits and traditions and adapt to new market
+* Rather than trying to kill your power where you had so much strength, try to keep you strengths, and improve your weaknesses insetad of just diminishing your strengths!!
+
+In the case of Philips, NO's so powerful, keep this and build on it, focus on the weakness with the PD's and help them out you know what I'm saying. Very hard to do and much easier said
