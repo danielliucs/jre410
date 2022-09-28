@@ -128,4 +128,5 @@ VRIN (Valuable, Rare, In-imitable, Non-substitutable) INNER ANALYSIS!!
 * USE MONEY GOT FROM COPY CATTING TO INVEST MORE IN R&D in decentralized companies
 * Instead of copy catting forever, use that money to innovate!!!
 
-
+## Traditions
+* Both should have tried to forget their old habits and traditions and adapt to new market
