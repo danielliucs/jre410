@@ -11,6 +11,7 @@ The numbers at the end, the exhibits are actually important and can help the spe
 3. etc (next week)
 
 VRIN (Valuable, Rare, In-imitable, Non-substitutable) INNER ANALYSIS!!
+SWOT (Strength, weaknesses, opportunities, threats)
 
 # Prewar:
 ## Environment: 
