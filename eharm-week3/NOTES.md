@@ -3,8 +3,8 @@ Typically two kinds of network effects
 * Cross side network effects
 * Same side network effects
 
-* Cross side is the increase in value to users in one side of a network by addition of users to another side
-* Same side is the change in value that occurs for users on the same side with the addition of users on that side
+* Cross side is the increase in value to users in one side of a network by addition of users to another side (supply and demand sides)
+* Same side is the change in value that occurs for users on the same side with the addition of users on that side (supply and demand sides)
 
 eHarmony:
 * Lots of information collected
