@@ -1,0 +1,2 @@
+-Gross profit demonstrates the money you made after deducting ALL costs (costs of goods sold)
+-Net profit is gross pofit + operating exepenses as well. Typically gross profit > net profit
