@@ -6,6 +6,7 @@
 - Fitbit had many products already in the market, leading to higher revenue generated
 - It led the fitness-tracker market in the US with a share of 68%
 - They had many outlets for their products like Amazon, BestBuy, Target, and WALMART
+- Fire technology
 
 
  
