@@ -24,6 +24,8 @@ them the potential to enter the market?
 - Competitors focused on different things but still had Fitbit's main vision as a feature.
 - Technological innovation was also an advantage, more R&C's than Fitbit to be able to do so
 - More features of the watch than FitBit
+- Other smartwatch companies
+- Other watch companies
  
 4. Comparing the positioning strategies adopted by each 
 competitor, which strategy do you think will be most 
