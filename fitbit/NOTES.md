@@ -1,2 +1,4 @@
--Gross profit demonstrates the money you made after deducting ALL costs (costs of goods sold)
--Net profit is gross pofit + operating exepenses as well. Typically gross profit > net profit
+- Gross profit demonstrates the money you made after deducting ALL costs (costs of goods sold)
+- Net profit is gross pofit + operating exepenses as well. Typically gross profit > net profit, at the abre minimum gross profit == net profit
+- Profit margins are a PERCENTAGE of revenue, measures profitiability, the formula is (revenue - cost) / revenue
+- Net profit margin is (revenue - cost of goods sold) / revenue
